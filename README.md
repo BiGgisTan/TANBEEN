@@ -4,6 +4,6 @@
 
 
 
-  <a href="#"><img src="http://readme-typing-svg.herokuapp.com?color=d1fa02&center=true&vCenter=true&multiline=false&lines=Queen+Elisa+Whatsapp <a href="#"><img src="http://readme-typing-svg.herokuapp.com?color=d1fa02&center=true&vCenter=true&multiline=false&lines=🕯𝙏𝘼𝙉𝘽𝙀𝙀𝙉🐧+𝙒𝙃𝘼𝙏𝙎𝘼𝙋𝙋+𝐁𝐎𝐓+𝙗𝙮+𝘽𝙤𝙨𝙨😎𝙏𝙧𝙖𝙮𝙤𝙝+𝙛𝙧𝙤𝙢+𝙩𝙝𝙚+𝘽𝙞𝙂𝙜𝙞𝙎" alt="">
+  <a href="#"><img src="http://readme-typing-svg.herokuapp.com?color=d1fa02&center=true&vCenter=true&multiline=false&lines=Queen+Elisa+Whatsapp <a href="#"><img src="http://readme-typing-svg.herokuapp.com?color=d1fa02&center=true&vCenter=true&multiline=false&lines=🕯𝙏𝘼𝙉𝘽𝙀𝙀𝙉🐧+𝙒𝙝𝙖𝙩𝙨𝙖𝙥𝙥+𝘽𝙊𝙏 alt="">
                     alt="">
 
