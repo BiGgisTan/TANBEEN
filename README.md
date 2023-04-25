@@ -8,7 +8,7 @@
   
  
 
- <a href="#"><img src="http://readme-typing-svg.herokuapp.com?color=d1fa12&center=true&vCenter=true&multiline=false&lines=𝘉𝘠" alt="">
+ <a href="#"><img src="http://readme-typing-svg.herokuapp.com?color=d1fa12&center=true&vCenter=true&multiline=false&lines=𝑩𝒚" alt="">
   
 
  <a href="#"><img src="http://readme-typing-svg.herokuapp.com?color=d1fa12&center=true&vCenter=true&multiline=false&lines=𝘽𝙤𝙨𝙨😎𝙏𝙧𝙖𝙮𝙤𝙝" alt="">
